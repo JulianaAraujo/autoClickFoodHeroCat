@@ -1,0 +1,1 @@
+Autoclick bot test to feed fighter
